@@ -4,7 +4,7 @@
 
 [Minecraft EULA](https://www.minecraft.net/zh-hant/eula)
 
-[「台灣麥塊」侵權！遊戲商要告　警抄機房逮2人]()
+[「台灣麥塊」侵權！遊戲商要告　警抄機房逮2人](https://news.tvbs.com.tw/local/677231)
 
 ```
 台灣麥塊的賺錢方式：（價格為2014年7月10日，即是在EULA改變以前）
